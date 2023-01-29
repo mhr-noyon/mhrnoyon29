@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @mhrnoyon29
-- 👀 I’m interested in graphics design
 - 📫 How to reach me ...
 
 <!---
